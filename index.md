@@ -1,2 +1,0 @@
-## Welcome to Zhangli Blog
-
